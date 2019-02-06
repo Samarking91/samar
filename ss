@@ -1,3 +1,3 @@
 Rating and feedback
-Is this movie is entertainable??
+How this movie quality??
 1)* 2)** 3)*** 4)**** 5)*****
