@@ -1,3 +1,3 @@
 Rating and feedback
-How this movie quality??
+Is this movie is relevant??
 1)* 2)** 3)*** 4)**** 5)*****
